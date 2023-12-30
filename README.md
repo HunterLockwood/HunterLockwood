@@ -8,6 +8,6 @@ I have spent the last 15 some odd years working with and for speakers of Algonqu
 
 ### Elsewhere & Otherwise
 
-You can find out more about me through simple inquiry. My [personal website](https://hunterlockwood.github.io/), although I tend not to update it frequently, is a good place to start.  
+You can find out more about me through simple inquiry. My [personal website](https://hunterlockwood.github.io/), which I update only infrequently, is a good place to start.  
 
 I try not to be active on any social media site, although I do {maintain, retain} accounts on various platforms, and tend to investigate new ones as they arise.
